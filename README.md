@@ -1,3 +1,3 @@
 # Demon-Slayer
 
-G.zee is Sassy, suuuuuuuuuuuuuuuuuuuupppppppppppppeeeeeeeeeeeeeeeeerrrrrrrrrrrrrr Sassy
+G.Z is Sassy, suuuuuuuuuuuuuuuuuuuupppppppppppppeeeeeeeeeeeeeeeeerrrrrrrrrrrrrr Sassy
